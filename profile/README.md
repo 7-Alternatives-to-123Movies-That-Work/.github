@@ -12,7 +12,7 @@ Here are some of the best 123Movies proxy sites that still offer free, high-qual
 
 | **SITES**                         | **Country**     | **Status** |
 |-----------------------------------|-----------------|------------|
-| [OK123MOVIES.CC](https://ok123movies.cc) | United States | **Alive**  |
+| [OK123MOVIES.CC](https://www1.123movieson.one/)) | United States | **Alive**  |
 | [123MOVIESFREE4U.ICU](https://123moviesfree4u.icu) | United States | **Alive**  |
 | [123MOVIESGOHD.CC](https://123moviesgohd.cc) | United States | **Alive**  |
 | [123MOVIESFREE4U.TOP](https://123moviesfree4u.top) | United States | **Alive**  |
